@@ -4,7 +4,7 @@
 
 ## -> Minhas redes:
 
-[![instagram](h(https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/isabellanicoly__?utm_source=qr&igshid=MzNlNGNkZWQ4Mg%3D%3D)
+[![instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/isabellanicoly__?utm_source=qr&igshid=MzNlNGNkZWQ4Mg%3D%3D)
 
 [![tiktok](https://img.shields.io/badge/TikTok-000000?style=for-the-badge&logo=tiktok&logoColor=white)](https://tiktok.com/@isabellanicoly_)
 
