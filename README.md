@@ -7,3 +7,7 @@
 https://tiktok.com/@isabellanicoly_
 
 https://instagram.com/isabellanicoly__?utm_source=qr&igshid=MzNlNGNkZWQ4Mg%3D%3D 
+
+## -> Para entrar em contato comigo: 
+
+isabella.silva6@estudante.ifto.edu.br 
